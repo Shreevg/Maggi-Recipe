@@ -7,4 +7,4 @@ Recipe Instructions:
 5. Keep stirring until most of the water has boiled off or until you think it has a nice consistency
 6. When it is done cooking, pour the noodles into a bowl
 7. Add the salt and ghee to the bowl and mix thoroughly
-8. ENJOY
+8. ENJOY!!
